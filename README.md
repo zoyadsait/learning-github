@@ -1,1 +1,1 @@
-Please add your name to the attendence sheet.
+Please add your name to the attendance sheet.
